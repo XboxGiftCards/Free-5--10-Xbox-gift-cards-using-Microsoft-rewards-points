@@ -4,6 +4,12 @@
 
 In the ever-expanding world of gaming, Xbox has become a household name. With thousands of games available, gamers often seek ways to enhance their experience without breaking the bank. One of the best ways to do this is by earning Xbox gift cards through Microsoft Rewards points. In this guide, we will explore how you can earn Xbox gift cards worth $5 to $10 using Microsoft Rewards points. 
 
+
+[CLICK HERE TO GET FREE LINK NEW](https://todaylink.site/freegiftcard/)
+
+[CLICK HERE TO GET FREE LINK NEW](https://todaylink.site/freegiftcard/)
+
+
 ## What Are Microsoft Rewards Points?
 
 ### H2: Understanding Microsoft Rewards
